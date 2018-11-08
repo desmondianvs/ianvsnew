@@ -1,13 +1,16 @@
 ---
-title: My Second Post!
-date: "2015-05-06T23:46:37.121Z"
+title: Process of Fundraising
+date: "2018-11-09T23:46:37.121Z"
 ---
 
-Wow! I love blogging so much already.
+##Equity Offering
 
-Did you know that "despite its name, salted duck eggs can also be made from
-chicken eggs, though the taste and texture will be somewhat different, and the
-egg yolk will be less rich."?
-([Wikipedia Link](http://en.wikipedia.org/wiki/Salted_duck_egg))
+A private equity fund typically makes investments in companies (known as portfolio companies). These portfolio company investments are funded with the capital raised from LPs, and may be partially or substantially financed by debt.
 
-Yeah, I didn't either.
+##Token Offering
+
+Registered syndicates. The concept of investors pooling funds and resources is not a new one. Traditionally, they are called syndicates and will normally be registered entities with accredited investors.
+
+##Equity Token Offering
+
+Legally compliant security tokens in the EU, creating access for retail investors to participate in these investments globally.

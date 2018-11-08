@@ -1,107 +1,38 @@
 ---
-title: New Beginnings
-date: "2015-05-28T22:40:32.169Z"
+title: TEAM
+date: "2018-11-09T23:46:37.121Z"
 ---
 
-Far far away, behind the word mountains, far from the countries Vokalia and
-Consonantia, there live the blind texts. Separated they live in Bookmarksgrove
-right at the coast of the Semantics, a large language ocean. A small river named
-Duden flows by their place and supplies it with the necessary regelialia.
+   ![picture](https://res.cloudinary.com/dgvhut35x/image/upload/v1540918586/max.jpg)
 
-## On deer horse aboard tritely yikes and much
+## Max Mucko / Founding Partner
 
-The Big Oxmox advised her not to do so, because there were thousands of bad
-Commas, wild Question Marks and devious Semikoli, but the Little Blind Text
-didn’t listen. She packed her seven versalia, put her initial into the belt and
-made herself on the way.
+Researching, utilizing and advocating cryptocurrencies and the underlying technology of distributed ledgers since early May of 2017. Since then been active in trading and crowdfunding. Most notably via the syndicate of investors called the Black Dragon. Since February 2018 we have managed to raise more than six million dollars from approximately more than a  thousand, up to two thousand contributors. Projects that I’ve been working closely with include Celsius Network, Tolar, Mandala Exchange, Nexo, Skrumble Network, CanYa, Block Collider, Bankorus, Rootstock, Emotiq, and so forth.
+Apart from the cryptocurrency and the blockchain experience in the last few years I have been working as an intern in one of the biggest insurance companies in Croatia, Societe Generale Insurance, as well as TIS group which is one of the leading software development companies in Croatia. There I have been working in the Sales and Finance department.
 
-* This however showed weasel
-* Well uncritical so misled
-  * this is very interesting
-* Goodness much until that fluid owl
+  <a href="https://www.linkedin.com/in/mmucko/"> Linkedln </a>
 
-When she reached the first hills of the **Italic Mountains**, she had a last
-view back on the skyline of her hometown _Bookmarksgrove_, the headline of
-[Alphabet Village](http://google.com) and the subline of her own road, the Line
-Lane. Pityful a rethoric question ran over her cheek, then she continued her
-way. On her way she met a copy.
 
-### Overlaid the jeepers uselessly much excluding
+  ![picture](https://res.cloudinary.com/dgvhut35x/image/upload/v1540918603/angella.jpg)
 
-But nothing the copy said could convince her and so it didn’t take long until a
-few insidious Copy Writers ambushed her, made her drunk with
-[Longe and Parole](http://google.com) and dragged her into their agency, where
-they abused her for their projects again and again. And if she hasn’t been
-rewritten, then they are still using her.
+## Angella Sierra / Founding Partner
 
-> Far far away, behind the word mountains, far from the countries Vokalia and
-> Consonantia, there live the blind texts. Separated they live in Bookmarksgrove
-> right at the coast of the Semantics, a large language ocean.
 
-It is a paradisematic country, in which roasted parts of sentences fly into your
-mouth. Even the all-powerful Pointing has no control about the blind texts it is
-an almost unorthographic life One day however a small line of blind text by the
-name of Lorem Ipsum decided to leave for the far World of Grammar.
+5 years in drafting and negotiation of international contracts, legal consultancy on corporate law (international tax law, international contracting corporate and business law,
+governing law and dispute resolutions, competition Law and regulated sectors), immigration law (residence and nationality) and International economic criminal law for big clients in a law firm and international companies.
 
-### According a funnily until pre-set or arrogant well cheerful
+Since 2018 I started advising companies in the fin-tech domain as a VC and exchange domain (incorporation structure, contracts, regulation analysis, OTC for cryptocurrencies and legal representation).
 
-The Big Oxmox advised her not to do so, because there were thousands of bad
-Commas, wild Question Marks and devious Semikoli, but the Little Blind Text
-didn’t listen. She packed her seven versalia, put her initial into the belt and
-made herself on the way.
+<a href="https://www.linkedin.com/in/angella-sierra-marquez-a068178b/"> Linkedln </a>
 
-1.  So baboon this
-2.  Mounted militant weasel gregariously admonishingly straightly hey
-3.  Dear foresaw hungry and much some overhung
-4.  Rash opossum less because less some amid besides yikes jeepers frenetic
-    impassive fruitlessly shut
+![picture](https://res.cloudinary.com/dgvhut35x/image/upload/v1540920140/desmond.png)
 
-When she reached the first hills of the Italic Mountains, she had a last view
-back on the skyline of her hometown Bookmarksgrove, the headline of Alphabet
-Village and the subline of her own road, the Line Lane. Pityful a rethoric
-question ran over her cheek, then she continued her way. On her way she met a
-copy.
+## Desmond Kam / Founding Partner
 
-> The copy warned the Little Blind Text, that where it came from it would have
-> been rewritten a thousand times and everything that was left from its origin
-> would be the word "and" and the Little Blind Text should turn around and
-> return to its own, safe country.
+5 years in building 2 companies with failed 1  and success 1 with cash flow in 6 Asia countries.  Joined & worked with Accelerators in Singapore & Venture building company as Acting  CEO.
 
-But nothing the copy said could convince her and so it didn’t take long until a
-few insidious Copy Writers ambushed her, made her drunk with Longe and Parole
-and dragged her into their agency, where they abused her for their projects
-again and again. And if she hasn’t been rewritten, then they are still using
-her. Far far away, behind the word mountains, far from the countries Vokalia and
-Consonantia, there live the blind texts.
+Understood about the funding mechanisms and investment strategies for startup in Traditional industrial & Crypto industrial.
 
-#### Silent delightfully including because before one up barring chameleon
+Since 2018, Became venture partner of few capital funds.  Started advising ICO/ Startup for better fundraising intercontinental investors return on investments.
 
-Separated they live in Bookmarksgrove right at the coast of the Semantics, a
-large language ocean. A small river named Duden flows by their place and
-supplies it with the necessary regelialia. It is a paradisematic country, in
-which roasted parts of sentences fly into your mouth.
-
-Even the all-powerful Pointing has no control about the blind texts it is an
-almost unorthographic life One day however a small line of blind text by the
-name of Lorem Ipsum decided to leave for the far World of Grammar. The Big Oxmox
-advised her not to do so, because there were thousands of bad Commas, wild
-Question Marks and devious Semikoli, but the Little Blind Text didn’t listen.
-
-##### Wherever far wow thus a squirrel raccoon jeez jaguar this from along
-
-She packed her seven versalia, put her initial into the belt and made herself on
-the way. When she reached the first hills of the Italic Mountains, she had a
-last view back on the skyline of her hometown Bookmarksgrove, the headline of
-Alphabet Village and the subline of her own road, the Line Lane. Pityful a
-rethoric question ran over her cheek, then she continued her way. On her way she
-met a copy.
-
-###### Slapped cozy a that lightheartedly and far
-
-The copy warned the Little Blind Text, that where it came from it would have
-been rewritten a thousand times and everything that was left from its origin
-would be the word "and" and the Little Blind Text should turn around and return
-to its own, safe country. But nothing the copy said could convince her and so it
-didn’t take long until a few insidious Copy Writers ambushed her, made her drunk
-with Longe and Parole and dragged her into their agency, where they abused her
-for their projects again and again.
+<a href="https://www.linkedin.com/in/desmond-kam-95432896/"> Linkedln </a>
