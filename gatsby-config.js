@@ -1,6 +1,6 @@
 module.exports = {
   siteMetadata: {
-    title: 'Ianvs Ventures',
+    title: 'IANVS Ventures',
     author: 'Desmond Kam',
     description: 'Investment, Fundraising, and Advising',
     siteUrl: 'https://ianvs.co/',

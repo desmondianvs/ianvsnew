@@ -27,7 +27,7 @@ class Bio extends React.Component {
           }}
         />
         <p>
-        Our<strong>Philosophy</strong> go beyond the state of a common services provider in legal, management, consulting and advising funds.{' '}
+        <strong>Our Philosophy</strong> goes beyond the state of a common services provider in legal, management, consulting and advising funds.{' '}
         </p>
       </div>
     )
